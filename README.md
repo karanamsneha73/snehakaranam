@@ -34,7 +34,7 @@
 ## 🤝 Let's Connect
 
 - GitHub: [karanamsneha73](https://github.com/karanamsneha73)  
-- LinkedIn: [Your LinkedIn link]  
-- Email: [Your Email]  
+- LinkedIn: https://www.linkedin.com/in/snehakaranam  
+- Email: karanamnseha73@gmail.com  
 
 
